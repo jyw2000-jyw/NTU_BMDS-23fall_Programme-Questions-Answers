@@ -1,1 +1,1 @@
-Please check the pdf for the essay
+Please check the PDF file for the report
